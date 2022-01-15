@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @dexterj
 - 👀 I’m interested in comics and woodworking
 - 🌱 I’m currently learning about woodworking
-- 💞️ I’m looking to collaborate on nothing at all
-- 📫 How to reach me... idk
+- 💞️ I’m looking to collaborate on web3
+- 📫 How to reach me: the internet
