@@ -1,4 +1,2 @@
 - 👋 Hi, I’m @dexterj
-- 👀 I’m interested in comics and woodworking
-- 🌱 I’m currently learning about woodworking
 - 📫 How to reach me: the internet
